@@ -7,7 +7,25 @@ You can receive SMS online with the listed numbers at **Chicken-SMS**. You can u
 
 _Furthermore, we are not responsible for any form of crime that you will use, do or get by using this service._
 
-
+       .:::.                                                                           
+                                              .^~~^^^:.                                                                        
+                                          .^^^^^~~~~^^^^:                                                                      
+                                          .^^~~~~~~~~^^^^^:.                                                                   
+                                        ::^^^~~~~^^^^^^^^^^^:.                                                                 
+                                        ^~~~~~~^^^^^:....  ..^^:                                                               
+                                        .^~~~~^^^:.   :^^:    :^^.                                                             
+                                          .:^^^.        ..     .:^^:..                                                         
+                                                                .:^~^^:                                                        
+                                                             .:^^::..                                                          
+                                                           :^^^.                                                               
+                                                         .^^^~.                                                                
+                                                        .^^:^~:                                                                
+                                                        :~:^~~~:                                                               
+                                                        .~^^~~~^.  ...   ..... .. . .                                          
+                                                         ^^^~~~~.  . ....... ..:..:...:.                                       
+                                                          ^~~^^:                                                               
+                                                          .^^.     .... ....                                                   
+                                                           .^:     .........  
 
 
 
